@@ -1,6 +1,6 @@
-### Hi there 👋
+### Hello everyone 👋
 
-Here are some ideas to get you started:
+Below is my biography:
 
 - 🎮 I am a game lover of minecraft, Subway Surfers
 - 🌱 I’m currently learning ...
